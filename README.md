@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐I'm a Data Scientist Analyst with passion for AI and Science.<br>📫 Shoot me an Email or add me on LinkedIn.
+⭐I'm a Data Analyst with passion for AI and Science.<br>📫 Shoot me an Email or add me on LinkedIn.
 
 
 ## 🌐 Socials:
