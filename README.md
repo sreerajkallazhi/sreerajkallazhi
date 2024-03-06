@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐I'm a AI ML Developer with passion for AI and Science.<br>📫 Shoot me an Email or add me on LinkedIn.
+⭐I'm an AI ML Developer with passion for AI and Science.<br>📫 Shoot me an Email or add me on LinkedIn.
 
 
 ## 🌐 Socials:
